@@ -1,1 +1,1 @@
-# ETEC-li-es
+# ETEC-atividades
